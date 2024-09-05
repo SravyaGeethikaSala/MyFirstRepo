@@ -1,4 +1,4 @@
 # Myfirstrepo
 
 Sravya Geethika Sala 
-I would like to visit seoul someday 
+I would like to visit seoul someday soon
